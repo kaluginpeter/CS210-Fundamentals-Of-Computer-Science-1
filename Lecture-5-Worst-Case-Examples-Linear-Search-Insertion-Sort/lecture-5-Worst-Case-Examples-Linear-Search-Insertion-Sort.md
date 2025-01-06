@@ -1,0 +1,1 @@
+[CS210 2022](https://www.youtube.com/watch?v=06Sob0UyTRo&t=3s)
